@@ -6,7 +6,7 @@
 
 ## 🚀 Enfoque
 
-- 🎮 Juega **Geometry Dash**
+- 🎮 Entusiasta de los **Videojuegos**
 - 💻 Le gusta aprender y practicar
 - 🤝 Amigo de **@Orisono728** y **@dbarrientos-dev**
 
